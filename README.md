@@ -14,7 +14,7 @@ Age: 27, though he doesn't think about it too much, as he is forever a kid at he
 
 Height: 5'11'', though he calls himself short.
 
-Occupation: 
+Occupation: Couples therapist, although he likes working at Starbucks part-time.
 
 Immedient Family: Megan/Meg as his mom and Raine/Radford as his dad, with Rachel as his adopted sister.
 
